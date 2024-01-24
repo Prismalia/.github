@@ -14,4 +14,4 @@
 
 Rejoignez-nous dans cette aventure passionnante et découvrez comment nous pouvons vous aider à exploiter pleinement le potentiel de vos données pour propulser votre entreprise vers de nouveaux sommets ! 🚀📈💼
 
-👨‍💻 Prismalia est co-fondée par Yann HOFFMANN et Joris LIMONIER, deux Scientifiques des Données et amis de longue date. 🤝
+👨‍💻 Prismalia est fondée Joris LIMONIER, Scientifique des Données. 🤝
